@@ -3,6 +3,7 @@
 **Analytics and data professional based in Atlanta, GA** 📍
 
 🎓 **M.S. in Analytics** — Georgia Institute of Technology, Dec 2025
+
 🎓 **B.B.A. in Computer Information Systems** — Georgia State University, May 2024
 
 ---
